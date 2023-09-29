@@ -14,3 +14,5 @@ De retour chez lui, l'explorateur réalise que le parchemin renfermait la sagess
 **Le Chasseur de Dragons** s'est courageusement aventuré dans la nature à la recherche du *mystérieux dragon* qui terrorisait le village. Bientôt, il a entendu le bruissement des ailes et a vu le **dragon** s'élever au-dessus des cimes des arbres. Prêt au combat, il l'a attaqué avec habileté et bravoure, espérant enfin apporter la paix à sa communauté.
 
 Enfin un vrai adversaire, une vraie bête qui mérite le titre mythique de **Dragon**. Ceux qu'il avait croisé auparavant n'étaient que des **lézards** comparés à celui qui se tient devant lui *aujourd'hui*. Cette bataille sera la meilleure chasse de sa vie, une **flamme nouvelle fut _allumée_ en lui**.
+
+Cette fête intergalactique est devenue légendaire, réunissant des créatures de toutes les galaxies pour célébrer l'unité et la joie. **Le pingouin à roulettes** a continué à être l'âme de la piste de danse, inspirant des générations entières à poursuivre leurs rêves d'aventures extraordinaires et de danses interplanétaires, tout en faisant des cercles lumineux sous les étoiles.
